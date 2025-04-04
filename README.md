@@ -1,1 +1,1 @@
-
+SHO ETO TAKOE
